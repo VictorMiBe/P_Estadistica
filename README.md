@@ -6,3 +6,4 @@
 -llegue ptos
 -solo somos 2 xd perdona
 - Por que todo el texto se pego crjo
+asdasd
